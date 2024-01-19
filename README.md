@@ -1,7 +1,9 @@
 # WAZUUUP!!!
 
 ## 🚀 About Me
-Love of God , Keyboards and Algorithms :)
+Love of God , Keyboards and Algorithms
+I know that I don't know
+
 
 ## 🌐 Connect with Me
 - Email: alirezaalavirazavi@yahoo.com
