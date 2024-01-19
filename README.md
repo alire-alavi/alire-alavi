@@ -1,4 +1,4 @@
-# Hi there, I'm Alireza Alavi 👋
+# WAZUUUP!!!
 
 ## 🚀 About Me
 Love of God , Keyboards and Algorithms :)
